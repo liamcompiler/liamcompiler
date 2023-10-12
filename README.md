@@ -4,4 +4,5 @@
 - 💞️ I’m looking to collaborate on great things
 - 📫 How to reach me through github
 
-Hi guys and galls!
+Hi guys and galls
+Hope to meet you one day
